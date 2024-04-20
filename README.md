@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kohil2211
 - 👀 I’m interested in Coding , Cricket and Chess.
-- 🌱 I’m currently learning Coding and Stock Market
+- 🌱 I’m currently learning Coding .
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
